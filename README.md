@@ -1,1 +1,0 @@
-# mj-digital-hub-qr
